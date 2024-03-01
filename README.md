@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning BSc Mathematics and Computer Science - Kirinyaga University
 - 💞️ I’m looking to collaborate on cyber security projects.
 - 📫 How to reach me via whatsApp number or call 0111653936
-- 😄 Pronouns: ...
+- 😄 Pronouns: HE/HIS
 - ⚡ Fun fact: Mathematics sucks but its wat keeps me going.
 
 <!---
